@@ -6,10 +6,10 @@
 
 <div align="center">
 
-$\text{\color{#655a8b}   　︵︵　　I block freely!　 ಄
+$\text{\color{#655a8b}   　︶︶　　I block freely!　 ಄
   }$ 
 
-$\text{\color{#655a8b}　　　　 ౿ ݁  .    dnc , c+h!    ︵   ｡  light inspo is okay!    ˚ ⚠︎
+$\text{\color{#655a8b}　　　　 ✴︎ .　　 dnc　,,　w2i!　︵　c+h heavily enc!　　˚ ⚠︎
   }$ 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=jy0fzix46hzo5wzm17s7qm3no&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=655a8b&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=jy0fzix46hzo5wzm17s7qm3no&redirect=true)
