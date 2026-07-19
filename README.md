@@ -2,7 +2,8 @@
 
 ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FfuIImetaljacket&label=pancakes!&labelColor=%23655a8b&countColor=%23555555&style=plastic&labelStyle=upper)
 
-<img width="717" height="" alt="Untitled76_20260719015815" src="https://github.com/user-attachments/assets/79c41933-f885-40d1-aedd-7a5545171afa" />
+<img width="834" height="" alt="Untitled76_20260719025847" src="https://github.com/user-attachments/assets/0e704383-d4de-46f2-aac6-140f285f372a" />
+
 
 <div align="center">
 
