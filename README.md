@@ -3,12 +3,6 @@
 
 ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FfuIImetaljacket&label=Kits!%20%5E_%5E%20&countColor=%23ddbfa8&style=plastic)
 
-$\text{\color{#ddbfa8}   　　
-  }$ 
-
-$\text{\color{#ddbfa8}   　Used to be one of the rotten ones, and i liked you for that
-  }$ 
-
 <img width="800" alt="Untitled93_20260908191512" src="https://github.com/user-attachments/assets/2a60d658-5980-4c10-ae64-1c5025dc970f" />
 
 <div align="center">
