@@ -10,7 +10,7 @@
 $\text{\color{#ddbfa8}   　︶︶　　I block freely!　 ಄
   }$ 
 
-$\text{\color{#ddbfa8}　　　　 ▽ .　　 dnc　,,　w2i!　︵　c+h heavily enc!　　˚ 𑄝੭
+$\text{\color{#ddbfa8}　　　　 ▽ .　　 dnc　,,　c+h!　︵　read strawpage b4 int　　˚ 𑄝੭
   }$ 
 
 $\text{\color{#ddbfa8}      　
