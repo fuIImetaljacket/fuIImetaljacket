@@ -10,7 +10,7 @@
 $\text{\color{#ddbfa8}   　︶︶　　I block freely!　 ಄
   }$ 
 
-$\text{\color{#ddbfa8}　　　　 ▽ .　　 dnc　,,　c+h!　︵　sign ata ^_^　　˚ 𑄝੭
+$\text{\color{#ddbfa8}　　　　 ▽ .　　 dnc　,,　c+h!　︵　sign ata (ㅅ´ ˘ `)　　˚ 𑄝੭
   }$ 
 
 $\text{\color{#ddbfa8}      　
