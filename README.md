@@ -5,7 +5,7 @@
 
 <div align="center">
   
-$\text{\color{#9BA1B5}   　He's happiest with me
+$\text{\color{#9BA1B5}   　He's happiest with me.
   }$ 
 
 <img width="800" alt="Untitled112_20261107224643" src="https://github.com/user-attachments/assets/4e52ba58-2225-4181-a0ab-5882f3f5b89d" />
